@@ -1,0 +1,1 @@
+Been In a really awefulplace for a long time, its time to fly, its our time, were ready for this turnaround, a new life, a fresh start, my lil family we deserve all the happiness we could get... No turning back. New house, new car its time for mi babies and i to finally take advantage of the life we should of had a long time ago❣️ 
